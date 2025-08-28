@@ -1,4 +1,4 @@
-# Política de Privacidad de HisBus
+# Política de Privacidad.
 
 **Última actualización: 4 de julio de 2025**
 
