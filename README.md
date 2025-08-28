@@ -1,5 +1,3 @@
-# Carlos19711101.github.io
-"Política de privacidad de mi app"
 # Política de Privacidad de HisBus
 
 **Última actualización: 4 de julio de 2025**
